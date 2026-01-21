@@ -1,2 +1,0 @@
-# ostrichgarden
-OSTRICH GARDEN ostrichgarden
